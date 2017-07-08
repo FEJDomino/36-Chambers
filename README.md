@@ -1,2 +1,2 @@
-# 36-Chambers
+# 36-Chambers iz Shaolina #
 Prvi, role
